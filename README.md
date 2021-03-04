@@ -1,1 +1,1 @@
-# PTG
+Shimizu is a young girl which ends up stranded on a dangerous island in order to get her skills tested. She's dreaming of becoming the best ninja, but first she needs to prove her strength, skills and bravery. Will you join her on this adventure and help her prove evryone she's good enough?
